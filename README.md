@@ -397,23 +397,19 @@ around the world
 
 Brass Monkey, That funky Monkey, Brass Monkey junkie
 
-skibidi da dee dee do do 
+Dibidi ba didi dou dou
+Di ba didi dou
+Didi didldildidldidl houdihoudi dey dou
 
 hampter
 
 my stummy hurt
-
-you think darkness is your ally?
 
 2nd grade shaboingery
 
 lord foog the 2st
 
 open ne noor
-
-woop woop its da sound of da police 
-
-khwap ta nice
 
 thats just a theory a game theory
 
@@ -433,17 +429,105 @@ ur telling me a shrimp fried this rice?
 
 would you like some of this on your that?
 
-noot noot
-
-scatman
-
 two number 9s, a number 9 large, a number 6 with extra dip, a number 7, two number 45s (one with cheese), and a large soda.
 
-wisdom dog
+The Dog:
+Ba
+(Hi)
+Ha ba ba
+(Its me)
+Ha babadegada
+(I’m the dog.)
+Hababadadeba
+(My name is the dog.)
+Hadebadegadega
+(Everyone likes me.)
+Ha da da
+(I’m cute.)
+Ha ba ba
+(I think I will)
+Habebadegadega
+(bark at nothing now.)
+Ba
+(Bark)
+Ba
+(Bark)
+Ba ba ba
+(Bark bark bark)
+Ba ba ba ba
+(Bark bark bark bark)
+Ba ba ba ba ba
+(Bark bark bark bark bark)
+Ba
+(Bark)
+Ba
+(Bark)
+Ba
+(Bark)
+Habababa
+(Who’s that)
+Habababababa
+(Coming up over the horizon in my sky.)
+Ba
+(Ba)
+Bababababa
+(Who dares?)
+Dog of Wisdom:
+Awwwwwwwww
+(Awwwwwwwww) 
+Hawawaw
+(It’s me.) 
+Haaaaaaaa
+(The dog of wisdom.) 
+Haaaaaa ha wa wa wa 
+(I dispense wisdom from my mighty)
+Haaaaaaaa
+(Wisdom tooth.) 
+The Dog:
+Ha Hadebadega
+(Hi.  What is your wisdom?)
+The Dog of Wisdom:
+Ha wa wa wa 
+(Here is my wisdom.)
+Ha bababa
+(If your ball)
+Ha wa wa waaa
+(Is too big for your mouth,) 
+Haaaaaaaa
+(It’s not yours.) 
+The Dog:
+Hadebada
+(That is a good wisdom.)
+The Dog of Wisdom:
+Haaaa 
+(Thanks)
+Ha wa wa wa 
+(I also know a few)
+Ha wa wa wa 
+(Knock knock jokes)
+Ha ha 
+(Knock, knock.) 
+The Dog:
+Ha dedatch?
+(Who’s there?)
+The Dog of Wisdom:
+Ba
+(Ball.)
+The Dog:
+Badaga
+(Ball who?)
+The Dog of Wisdom, singing:
+Ba da da ba da de
+(BallIEVE it or not) 
+Be ga de ba ga 
+(I’m walking on air)
+BOTH DOGS, singing: 
+Habadegadebades 
+(I never thought I could feel)
+Ha da ba 
+(So free hee hee!)
 
-i am the gob gob gab galab
-
-skoopdidiwoop
+I am the Glob-glo-gab-galab, the shwabble-dabble-wabble-gabble flibba blabba blab. I'm full of shwibbly glib-a-kind, I am the yeast of thoughts and mind
 
 hey you youre finally awake
 
@@ -457,9 +541,9 @@ hi welcome to chillis
 
 i have fallen and i cant get up
 
-shaddow wizard money gang we love casting spells this song is sponsored by the shadow goverment, legalize nuclear bombs, swag messiah 
+shaddow wizard money gang we love casting spells this song is sponsored by the shadow goverment, legalize nuclear bombs, swag messiah
 
-mr world wide back at it again just to let you know
+it's the 305 mr. worldwide, back at it again to let you know, just came to remind y'all... que ese culo bota caca.
 
 roger roger
 
@@ -467,33 +551,29 @@ cha cha real smooth
 
 in the beninging
 
-i loved her crying meme in the voice of burger king foot lettuce
-
-alright alright alright
-
 ay bro watch yo jett
 
 snoore mimimimi
 
 honk shooo
 
-reeses puffs eat em up
+reeses puffs reeses puffs eat em up  eat em up eat em up eat em up!
 
-arbys we have the meats
+arbys! we have the meats
 
-we just got a letter
+we just got a letter we just got a letter, wonder who its from?
 
 autobots roll out
 
-doublekill, triple kill
+​Double kill, Triple Kill, Overkill, Killtacular, Killtrocity, Killimanjaro, Killtastrophe, Killpocalypse, Killionaire
 
-damn daniel
+DAMN (slight pause) DANIEL back at it again with the white vans!
 
-watr those
+whatrthoose!
 
-mining away idk what to mine
+Minin' away. I don't know what to mine. I'll mine this anyway.
 
-technologia
+technologia!
 
 its a hard knock life for us
 
@@ -501,38 +581,50 @@ it eeeez what it eeez
 
 its me ya boi
 
-whats up doc?
+ehhh, whats up doc?
 
-stop dont touch me there, this is my nono square
+stop! dont touch me there, this is my nono square
 
 chocolate rain
 
-my money dont jiggle jiggle
+My money don't jiggle, jiggle, it folds
+I like to see you wiggle, wiggle, for sure
+It makes me want to dribble, dribble, you know
+Riding in my Fiat, you really have to see it
+Six feet two in a compact, no slack
 
-youve got mail
+you've got mail
 
-christmas just a week away
+Can you believe it guys? Christmas, just a week away. Christmas is in a week! Woohoo! I am so happy about this information. Christmas!
 
-would you rather have u limited bacon and no mire games
+Would you rather have unlimited bacon and no video games or unlimited video games and no video games?
 
-bacon pancakes 
+Monkey, chicken-chicken, monkey Chicken, duck-duck
+Chicken, monkey-monkey, chicken, monkey, chicken-chicken, monkey, duck
 
-thats a lot of damage
+It's a badger, badger, badger, badger. Bbadger, badger, badger, badger, badger, badger. Mushroom, mushroom
 
-happy chrisis
+Bacon pancakes
+Making Bacon Pancakes
+Take some bacon and I put it in a pancake
+Bacon Pancakes
+That's what it's gonna make
+Bacon Pancake!
+
+now thats a lot of damage!
+
+happy chrisis, merry chrysler
 
 freesh avacado
 
 hogridaa
 
-hello im under the watur
+hello how r u, i am under the water, please help, here too much raining ooohoohohoh
 
 macaroni with the chicken strips
 
 beep beep im a sheep
 
 meow meow im a cow
-
-connection terminated
 
 change da world my final message goodbye
